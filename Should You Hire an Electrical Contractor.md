@@ -1,6 +1,6 @@
 # Should You Hire an Electrical Contractor?
 
-The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps people quickly contact the contractor without having to leave their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
+The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps potential customers find and contact the contractor without having to leave their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
 
 This is thanks to the rise of DIY. All one needs to do these days is Google how to do some electrical work, and an article or video will pop up with instructions. No need to call a contractor – they just need to purchase the tools (if they don’t have them).
 
@@ -50,10 +50,10 @@ If you are a busy person, then a DIY project might not be the best option for yo
 
 ### 7. Guarantees Their Work
 
-Many professionals will guarantee their work after they do it. This usually means that if you experience problems with the electrical work within a specified period of time, you are entitled to a free inspection and/or repair job. This is why a lot of individuals and businesses trust professional companies when it comes to carrying out electrical work.
+Many professionals will guarantee their work after they do it. This usually means that if you experience problems with the electrical work within a specified period, you are entitled to a free inspection and/or repair job. This is why a lot of individuals and businesses trust professional companies when it comes to carrying out electrical work.
 
 ## Wrapping Up
 
 DIY can seem like the way to go when you have some pending electrical work because you get to save money. Indeed some jobs are small enough to pull off yourself. But some jobs require a professional to minimize the risk of making costly mistakes.
 
-Plus, there are a number of benefits you miss out on with DIY, from utilizing the contractor’s skill and knowledge to getting satisfaction guarantees on the work done. Overall, hiring an electrical contractor seems to be the better option over DIY.
+Plus, there are several benefits you will miss out on with DIY, from utilizing the contractor’s skill and knowledge to getting satisfaction guarantees on the work done. Overall, hiring an electrical contractor seems to be the better option over DIY.
