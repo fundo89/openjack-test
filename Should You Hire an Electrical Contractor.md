@@ -1,6 +1,6 @@
 # Should You Hire an Electrical Contractor?
 
-The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps people to quickly the contractor and contact them without leaving their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
+The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps people quickly contact the contractor without having to leave their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
 
 This is thanks to the rise of DIY. All one needs to do these days is Google how to do some electrical work, and an article or video will pop up with instructions. No need to call a contractor – they just need to purchase the tools (if they don’t have them).
 
@@ -46,7 +46,7 @@ A certified contractor will always be insured just in case something goes wrong.
 
 ### 6. Saves You Time and Effort
 
-If you are a busy person, then a DIY project might not be best option for you. Something that can take a professional a few days to complete can take you weeks or even months. You have to stress about making time to complete the project, on top of sacrificing your weekends and holidays to get the job done. Save yourself the time, effort and stress by hiring an electrical contractor – spend your extra time with family.
+If you are a busy person, then a DIY project might not be the best option for you. Something that can take a professional a few days to complete can take you weeks or even months. You have to stress about making time to complete the project, on top of sacrificing your weekends and holidays to get the job done. Save yourself the time, effort and stress by hiring an electrical contractor – spend your extra time with family.
 
 ### 7. Guarantees Their Work
 
